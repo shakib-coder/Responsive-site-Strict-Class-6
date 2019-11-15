@@ -1,0 +1,1 @@
+# Responsive-site-Strict-Class-6
